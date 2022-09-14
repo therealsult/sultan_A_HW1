@@ -1,1 +1,3 @@
-# sultan_A_HW1
+Awesome team
+
+this team is gratly awesome
